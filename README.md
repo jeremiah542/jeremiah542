@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on front end dev projects
 - 📫 How to reach me ...
 - 😄 Pronouns:Serious HE🤣
+- currently trying the use of LOVABLE AI for various projects
   
 
 <!---
